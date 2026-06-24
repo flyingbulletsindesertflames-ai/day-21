@@ -1,1 +1,6 @@
 # day-21
+![image alt](https://github.com/flyingbulletsindesertflames-ai/day-21/blob/874d15cbc0eaf20f2969200fce66dffa0512f34a/Screenshot_24-6-2026_162433_claude.ai.jpeg)
+![image alt](image_url)
+![image alt](image_url)
+![image alt](image_url)
+![iamge alt](image_url)
